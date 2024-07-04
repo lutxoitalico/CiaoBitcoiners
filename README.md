@@ -5,5 +5,5 @@ Usare Bitcoin, programmare Bitcoin e custodire Bitcoin
   il proprietario della terra era il posessore della ricchezza.
 Poi furono le fabbriche e la produzione,
   il proprietario della industria era il possessore della ricchezza.
-Oggi cè l'informazionei
+Oggi cè l'informazione,
   la persona che dispone l'informazione più rilevante è il possesore della ricchezza. Cit.
